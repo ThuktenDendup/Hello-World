@@ -1,1 +1,1 @@
-Thukten Dendup is a handsome boy
+Thukten Dendup is a boy
